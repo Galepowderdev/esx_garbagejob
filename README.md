@@ -2,7 +2,7 @@ Preview:https://youtu.be/6CQbB694650
 
 – ORIGINAL SCRIPT BY Marcio FOR CFX-ESX-
 
-Discord:https://discord.gg/m2JvbMCTWG
+Discord:galepowder
 
 - Install -
 
